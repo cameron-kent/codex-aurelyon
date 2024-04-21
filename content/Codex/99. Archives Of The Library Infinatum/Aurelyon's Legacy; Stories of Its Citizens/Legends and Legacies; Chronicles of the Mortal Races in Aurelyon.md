@@ -1,0 +1,11 @@
+The tapestry of mortal races that populate Aurelyon is woven from a multitude of Ancestral Species, each contributing its own unique heritage and history to the diverse mosaic of civilisations that grace the world. From the towering giants of old to the nimble halflings that roam the countryside, and the industrious dwarves who carve their homes deep within the mountains, the mortal races of Aurelyon are as varied as the stars in the night sky.
+
+Throughout the annals of history, countless individuals from these ancestral species have risen to prominence, leaving an indelible mark on the world in myriad ways. Among them stand leaders who have shaped the course of nations and empires, their names echoing through the corridors of time as symbols of power and authority. Champions, revered for their martial prowess and unwavering valour, have defended the innocent and vanquished the forces of darkness, their deeds immortalized in song and legend.
+
+Scholars and sages, devoted to the pursuit of knowledge and enlightenment, have illuminated the minds of generations with their wisdom and insight, unraveling the mysteries of the cosmos and unlocking the secrets of the past. Priests and prophets, guided by faith and divine inspiration, have shepherded their flocks through times of trial and tribulation, offering solace and guidance to those in need.
+
+Yet, for every hero and luminary who has left a positive legacy upon the world, there are those whose actions have wrought devastation and despair. Tyrants and warlords, driven by greed and ambition, have unleashed untold suffering upon the innocent, their reigns marked by cruelty and oppression. Cultists and zealots, blinded by fanaticism and zeal, have spread chaos and destruction in the name of their twisted beliefs, leaving a trail of devastation in their wake.
+
+In the grand tapestry of Aurelyon's history, the stories of these individuals are but threads, weaving together to form a complex narrative of triumph and tragedy, hope and despair. Though their paths may diverge and their destinies may vary, each one plays a vital role in shaping the world in which they live, leaving an enduring legacy that will echo through the ages.
+
+> Excerpt from _Legends and Legacies: Chronicles of the Mortal Races in Aurelyon_ by _Historian Elara Stonebrook_

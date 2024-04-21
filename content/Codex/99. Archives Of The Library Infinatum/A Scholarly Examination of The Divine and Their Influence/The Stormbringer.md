@@ -1,0 +1,13 @@
+![[Kord.jpg|left|350|350]]Kord, the Stormbringer, stands as a mighty and revered deity within the pantheon of Aurelyon, celebrated for his strength, courage, and indomitable spirit. As the God of Strength and Storms, Kord embodies the ideals of bravery, athleticism, and the untamed power of nature, commanding the admiration and reverence of warriors, athletes, and adventurers alike.
+
+The influence of Kord rumbles like thunder across the mortal realm, inspiring mortals to push their limits and strive for greatness. His worshippers, drawn to his message of courage and determination, pay homage to the Stormbringer through acts of physical prowess, bravery, and martial skill, seeking to emulate his strength and ferocity in their own lives.
+
+The symbol of Kord, a lightning bolt piercing through a clenched fist, serves as a potent emblem of his influence and authority. Representing power, vitality, and the raw force of nature, the image of the Stormbringer inspires awe and reverence among his followers, instilling in them a sense of strength and determination in the face of adversity.
+
+Religions devoted to Kord vary in their practices and beliefs, but all share a common reverence for their mighty deity and a dedication to furthering his agenda of strength and valor. Some sects worship Kord as a god of war and athletics, invoking his blessings in times of combat and competition. Others venerate him as a patron of storms and natural disasters, seeking his favor in times of upheaval and turmoil.
+
+![[_kord.jpg|right|300|300]]Among the most devout of Kord's followers are the [[Champions Of The Tempest]], a fellowship of warriors, athletes, and adventurers dedicated to spreading the message of strength and courage in his name. These bold heroes revel in the thrill of battle and the challenge of competition, pushing themselves to their limits in pursuit of victory and glory, guided by the divine might of their beloved Stormbringer.
+
+In conclusion, the influence of Kord surges like a raging tempest through Aurelyon, inspiring mortals to embrace their inner strength and strive for greatness. Whether worshipped as a god of war or a patron of athleticism, Kord inspires his followers to face their fears head-on and overcome any obstacle in their path, embodying the ideals of courage, determination, and valor for all who call upon his name.
+
+> Excerpt from _A Scholarly Examination of The Divine and Their Influence: The Stormbringer_ as written by *[[Loremaster Thalindor Moonshadow]]*

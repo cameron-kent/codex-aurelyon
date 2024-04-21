@@ -1,0 +1,4 @@
+earth
+air
+fire
+water

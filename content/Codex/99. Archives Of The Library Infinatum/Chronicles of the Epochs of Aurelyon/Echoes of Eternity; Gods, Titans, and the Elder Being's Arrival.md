@@ -1,0 +1,11 @@
+Amidst the chaos and turmoil of the Axiom Rift, another threat began to emerge, one that would soon eclipse even the greatest of divine rivalries. Unbeknownst to the warring gods, an ancient and malevolent force stirred in the depths of the Astral Void, its dark influence spreading like a shadow across the cosmos. As the gods' attention remained focused on their internecine struggles, they remained oblivious to the looming threat on the horizon, a threat that drifted inexorably towards the Astral Sea where Aurelyon, lay nestled among the stars.
+
+With its arrival imminent, the very fabric of reality trembled with dread, for the eldritch being's insatiable hunger threatened to devour not only Aurelyon but all that lay in its path. Faced with the existential threat posed by this nameless horror, the warring gods begrudgingly agreed to set aside their differences and forge a temporary truce, pooling their divine might in a desperate bid to push back the encroaching darkness.
+
+For centuries, the gods clashed with the eldritch being in the ethereal expanse of the Astral Sea, their celestial battleground illuminated by flashes of divine energy and engulfed in the roiling chaos of cosmic conflict. Despite their best efforts, however, victory remained elusive, and what initially seemed like a stalemate gradually began to tilt in favor of the malevolent entity.
+
+Faced with the prospect of annihilation, the gods realized that they needed to devise an all-or-nothing plan if they were to stand any chance of defeating their otherworldly adversary. Drawing upon their collective wisdom and ingenuity, the divine pantheon crafted a daring strategy, one that would require them to channel the full extent of their power and sacrifice their very essence in a final, desperate gambit to save Aurelyon from oblivion.
+
+With the fate of the mortal realm hanging in the balance, the gods prepared to unleash their most devastating assault yet, steeling themselves for the ultimate confrontation with the eldritch being that threatened to consume everything they held dear. For Aurelyon, for the mortal races, and for the future of existence itself, the gods stood ready to make the ultimate sacrifice in the name of salvation.
+
+> Excerpt from _Echoes of Eternity: Gods, Titans, and the Elder Being's Arrival_ by _Historian Alaric Stormbringer_

@@ -1,0 +1,14 @@
+![[Erathis.jpg|left|350|350]]Erathis, the Architect of Civilization, stands as a revered and respected deity within the pantheon of Aurelyon, celebrated for her dedication to order, progress, and the advancement of civilization. As the Goddess of Civilization and Law, Erathis embodies the ideals of governance, industry, and community, commanding the admiration and loyalty of rulers, lawmakers, and citizens alike.
+
+The influence of Erathis extends across the mortal realm, shaping the course of history and guiding the development of nations and societies. Her worshippers, drawn to her message of order and progress, pay homage to the Architect of Civilization through acts of governance, diplomacy, and civic duty, seeking to emulate her principles of justice and cooperation in their own lives.
+
+The symbol of Erathis, a towering cityscape crowned with a radiant sun, serves as a potent emblem of her influence and authority. Representing the pinnacle of mortal achievement and the power of collective endeavour, the image of the Architect of Civilization inspires awe and reverence among her followers, instilling in them a sense of pride and purpose in the pursuit of societal advancement.
+
+Religions devoted to Erathis vary in their practices and beliefs, but all share a common reverence for their beloved deity and a dedication to furthering her agenda of progress and order. Some sects worship Erathis as a goddess of governance, invoking her blessings in matters of lawmaking, administration, and diplomacy. Others venerate her as a patron of industry and innovation, seeking to emulate her vision of a prosperous and harmonious society.
+
+![[_erathis.jpg|right|300|300]]Among the most devout of Erathis' followers are the [[Builders Of The Golden Age]], a coalition of architects, engineers, and statesmen dedicated to spreading the message of order and progress in her name. These noble souls labour tirelessly to construct grand monuments, establish thriving communities, and forge lasting alliances, guided by the divine wisdom of their beloved Architect of Civilization.
+
+In conclusion, the influence of Erathis resonates throughout Aurelyon, shaping the destiny of nations and the aspirations of mortals with her vision of order and progress. Whether worshipped as a goddess of governance or a patron of industry, Erathis inspires her followers to build a better world, embodying the ideals of justice, cooperation, and prosperity for all who call upon her name.
+
+> Excerpt from *A Scholarly Examination of The Divine and Their Influence:
+The Architect of Civilisation* as written by *[[Loremaster Thalindor Moonshadow]]*

@@ -1,0 +1,13 @@
+![[Bahamut.jpg|left|350|350]]Bahamut, the Platinum Dragon, stands as a revered and noble deity within the pantheon of Aurelyon, known for his unwavering dedication to justice, valour, and the protection of the innocent. As the Dragon God of Justice, Bahamut embodies the ideals of honour, righteousness, and benevolence, commanding the respect and admiration of mortals and dragons alike.
+
+The influence of Bahamut extends far and wide across the mortal realm, touching the hearts of all who seek his guidance and protection. His worshippers, drawn to his message of justice and righteousness, pay homage to the Platinum Dragon through acts of bravery, compassion, and selflessness, seeking to emulate his virtues in their own lives.
+
+The symbol of Bahamut, a majestic dragon in flight, serves as a potent emblem of his influence and authority. Representing strength, nobility, and unwavering resolve, the image of the Platinum Dragon inspires awe and reverence among his followers, instilling in them a sense of courage and determination in the face of adversity.
+
+Religions devoted to Bahamut vary in their practices and beliefs, but all share a common reverence for their noble deity and a dedication to upholding the principles of justice and righteousness. Some sects worship Bahamut as a guardian of the innocent, invoking his blessings in times of need and calling upon his divine strength to protect the weak and defenceless. Others venerate him as a patron of knights and warriors, seeking to emulate his valour and bravery in the pursuit of justice and honour.
+
+![[_bahamut.jpg|right|300|300]]Among the most devout of Bahamut's followers are the [[Order Of The Platinum Dragon]], an ancient order of knights and paladins dedicated to upholding the tenets of justice and righteousness in his name. Clad in shining armour and wielding swords of justice, these noble warriors stand as beacons of hope and defenders of the innocent, guided by the divine light of their beloved Platinum Dragon.
+
+In conclusion, the influence of Bahamut shines bright upon Aurelyon, illuminating the path of justice and righteousness for all who seek his guidance and protection. Whether worshipped as a guardian of the innocent or a patron of knights, Bahamut inspires his followers to stand firm in the face of evil, embodying the virtues of courage, honour, and selflessness for all who call upon his name.
+
+> Excerpt from _A Scholarly Examination of The Divine and Their Influence: The Platinum Dragon_ as written by *[[Loremaster Thalindor Moonshadow]]*

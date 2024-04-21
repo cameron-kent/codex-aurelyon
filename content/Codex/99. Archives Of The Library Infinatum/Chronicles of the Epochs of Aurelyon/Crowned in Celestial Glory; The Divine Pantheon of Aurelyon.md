@@ -1,0 +1,13 @@
+As the celestial realms witnessed the birth of Aurelyon and the dawn of the Age of Divine Dominion, the allure of this nascent world drew the attention of gods from across the multiverse. From distant planes of existence, deities both revered and feared felt the pull of Aurelyon's burgeoning potential, its untamed landscapes ripe for divine influence and mortal worship.
+
+Some gods arrived in grand displays of power and majesty, heralded by celestial choirs and radiant displays of light. These divine beings descended from the heavens amidst thunderous applause, eager to claim their rightful place among the pantheon of Aurelyon. Their presence brought forth miracles and revelations, inspiring mortals to build temples and offer prayers in their honor.
+
+Others, however, arrived in silence and secrecy, slipping through the veils of reality unnoticed by mortal eyes. These enigmatic gods preferred to work their will in the shadows, manipulating events from behind the scenes and weaving their divine influence into the fabric of mortal lives. Their motives were often inscrutable, their actions shrouded in mystery, yet their impact on Aurelyon's fate was no less profound.
+
+Over the passing of many millennia, Aurelyon became a melting pot of divine influence, as gods from all corners of existence left their mark upon its landscape and inhabitants. Some brought blessings of prosperity and protection, nurturing the mortal races and guiding them towards enlightenment and prosperity. Others, however, were agents of chaos and destruction, sowing discord and strife among mortals and vying for dominion over the world.
+
+Among the earliest gods to stake their claim on Aurelyon were Bane, the tyrannical god of tyranny and conquest, whose dark influence spread like a shadow across the land. Gruumsh, the savage god of orcs and warfare, carved out a domain of blood and battle, inspiring his followers to conquer and pillage in his name. Melora, the serene goddess of nature and the wild, watched over the untamed wilderness with a gentle yet firm hand, guiding mortals in their stewardship of the natural world. And the Raven Queen, mysterious mistress of death and fate, held sway over the cycle of life and death, her domain stretching across the mortal realm like a shroud of darkness.
+
+Together, these gods and many others shaped the destiny of Aurelyon, leaving an indelible mark on its history and ensuring that the world would forever be a battleground of divine wills and mortal aspirations.
+
+> Excerpt from _Crowned in Celestial Glory: The Divine Pantheon of Aurelyon_ by _High Priestess Selene Sunfire_

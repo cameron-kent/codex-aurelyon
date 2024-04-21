@@ -1,0 +1,13 @@
+![[Ioun.jpg|left|350|350]]Ioun, the All-Seeing Eye, stands as a revered and mysterious deity within the pantheon of Aurelyon, celebrated for her wisdom, knowledge, and insight. As the Goddess of Knowledge and Prophecy, Ioun embodies the ideals of enlightenment, discovery, and foresight, commanding the respect and admiration of scholars, seers, and seekers of truth.
+
+The influence of Ioun pervades the mortal realm, guiding mortals on their quest for knowledge and understanding. Her worshippers, drawn to her message of wisdom and enlightenment, pay homage to the All-Seeing Eye through acts of study, contemplation, and exploration, seeking to unlock the secrets of the universe and unravel the mysteries of existence.
+
+The symbol of Ioun, a luminous eye surrounded by swirling runes, serves as a potent emblem of her influence and authority. Representing knowledge, insight, and the pursuit of truth, the image of the All-Seeing Eye inspires awe and reverence among her followers, instilling in them a sense of curiosity and wonder in the face of the unknown.
+
+Religions devoted to Ioun vary in their practices and beliefs, but all share a common reverence for their wise deity and a dedication to furthering her agenda of enlightenment and discovery. Some sects worship Ioun as a goddess of knowledge, invoking her blessings in matters of learning, scholarship, and academia. Others venerate her as a patron of prophecy and foresight, seeking her guidance in matters of divination and interpretation.
+
+![[_ioun.jpg|right|300|300]]Among the most devout of Ioun's followers are the [[Seekers Of The Infinite]], a fellowship of scholars, sages, and adventurers dedicated to spreading the message of knowledge and understanding in her name. These intrepid seekers of truth journey far and wide in search of hidden lore and ancient wisdom, guided by the divine light of their beloved All-Seeing Eye.
+
+In conclusion, the influence of Ioun illuminates the mortal realm with the radiant glow of knowledge and understanding, guiding mortals on their journey of discovery and enlightenment. Whether worshipped as a goddess of knowledge or a patron of prophecy, Ioun inspires her followers to embrace the mysteries of the universe and unlock the secrets of existence for all who call upon her name.
+
+> Excerpt from _A Scholarly Examination of The Divine and Their Influence: The All-Seeing Eye_ as written by *[[Loremaster Thalindor Moonshadow]]*

@@ -1,0 +1,7 @@
+![[The Librarian.jpg|left|350|350]]The Librarian remains an enigmatic figure shrouded in the mists of time, a sage whose name has long faded into the annals of history, yet whose legacy looms large over the realm of knowledge. Known only by the title bestowed upon them, the Librarian stands as a symbol of wisdom and guardianship, their identity veiled behind the veil of obscurity.
+
+Throughout the ages, scholars and seekers of knowledge have whispered tales of the Librarian's vast repository of wisdom, a fabled collection of texts that transcends the confines of mortal comprehension.
+
+Legends speak of a pocket dimension known as the Library Infinatum, a realm existing outside the bounds of space and time, where the Librarian's treasures are said to be housed. Within its hallowed halls, the accumulated knowledge of countless civilizations is said to be preserved for eternity, awaiting those bold enough to seek its secrets. Though the Librarian themselves may have faded into obscurity, their legacy endures as a beacon of enlightenment, guiding the curious and the learned alike in their quest for truth and understanding.
+
+> Excerpt from _The Chronicles of Forgotten Sages_ by _Sariel Nightbloom_

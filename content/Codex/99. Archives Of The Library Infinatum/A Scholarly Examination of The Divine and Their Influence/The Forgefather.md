@@ -1,0 +1,13 @@
+![[Moradin.jpg|left|350|350]]Moradin, the Forgefather, stands as a stalwart and revered deity within the pantheon of Aurelyon, celebrated for his craftsmanship, wisdom, and unwavering dedication to his people. As the God of Dwarves and Smithing, Moradin embodies the ideals of craftsmanship, community, and the indomitable spirit of the dwarven race, commanding the loyalty and respect of artisans, warriors, and those who revere the forge.
+
+The influence of Moradin resonates throughout the mortal realm, shaping the destiny of dwarves and mortals alike with his divine guidance and wisdom. His worshippers, drawn to his message of craftsmanship and tradition, pay homage to the Forgefather through acts of labour, craftsmanship, and communal unity, seeking to emulate his skill and dedication in their own lives.
+
+The symbol of Moradin, a hammer striking an anvil amidst sparks and flame, serves as a potent emblem of his influence and authority. Representing craftsmanship, industry, and the forging of destiny, the image of the Forgefather inspires reverence and determination among his followers, instilling in them a sense of pride and purpose in the face of adversity.
+
+Religions devoted to Moradin vary in their practices and beliefs, but all share a common reverence for their venerable deity and a dedication to furthering his agenda of craftsmanship and community. Some sects worship Moradin as a god of dwarven society, invoking his blessings in matters of smithing, mining, and communal unity. Others venerate him as a patron of craftsmanship and industry, seeking his favour in matters of invention, construction, and engineering.
+
+![[_moradin.jpg|right|300|300]]Among the most devout of Moradin's followers are the [[Sons & Daughters Of The Anvil]], a fellowship of artisans, warriors, and craftsmen dedicated to spreading the message of craftsmanship and tradition in his name. These steadfast guardians of dwarven culture and tradition uphold the values of the Forgefather with unwavering devotion, labouring tirelessly in the service of their beloved deity, guided by the divine light of their venerable Forgefather.
+
+In conclusion, the influence of Moradin burns like a forge fire through Aurelyon, shaping the destiny of dwarves and mortals alike with his divine wisdom and craftsmanship. Whether worshipped as a god of dwarves or a patron of craftsmanship, Moradin inspires his followers to embrace the traditions of the past and forge a bright future for themselves and their kin, embodying the ideals of craftsmanship, community, and resilience for all who call upon his name.
+
+> Excerpt from _A Scholarly Examination of The Divine and Their Influence: The Forgefather_ as written by *[[Loremaster Thalindor Moonshadow]]*

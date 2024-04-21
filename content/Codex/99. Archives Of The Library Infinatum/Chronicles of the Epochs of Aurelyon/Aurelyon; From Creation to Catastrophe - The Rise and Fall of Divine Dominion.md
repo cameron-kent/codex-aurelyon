@@ -1,0 +1,13 @@
+"The First Divine Steps" marked the pivotal moment when the gods descended from their celestial realms to claim dominion over the newly formed world of Aurelyon. As the chaotic energies of the primordial maelstrom began to settle, the divine pantheon gazed upon the raw potential of this untamed realm with awe and determination.
+
+Led by Pelor, the radiant god of the sun, and accompanied by Sehanine, the goddess of the moon and stars, Moradine, the steadfast god of the earth, Kord, the mighty god of strength and battle, Corellon, the graceful god of the elves and magic, Bahamut, the noble god of justice and protection, Erathis, the wise goddess of civilization and order, and Asmodeus, the enigmatic god of contracts and ambition, the gods beheld the chaotic landscape of Aurelyon with a shared vision.
+
+They recognized the inherent flaws in the Titans' methods of shaping the world, seeing that while the Titans were mighty beings born of the same elemental energies, their approach lacked the finesse and subtlety required to create a perfect and harmonious realm. Thus, the gods resolved to take matters into their own divine hands, believing that only through their guidance could Aurelyon reach its full potential.
+
+With Pelor leading the way, the gods set about their sacred task, channelling their divine powers to sculpt the land, sea, and sky into a harmonious tapestry of beauty and order. Moradin raised towering mountains and carved out deep valleys, while Sehanine wove the fabric of night and day, filling the heavens with stars and the moon's gentle glow. Kord shaped mighty rivers and vast plains, while Corellon breathed life into the forests and enchanted glades.
+
+Bahamut watched over the fledgling mortal races, protecting them from harm and guiding them along the path of righteousness. At the same time, Erathis laid the foundations of civilization, teaching mortals the arts of agriculture, architecture, and governance. Asmodeus, ever watchful and cunning, forged pacts and alliances with mortals, ensuring that divine influence would be felt in every corner of Aurelyon.
+
+Together, the gods laboured tirelessly, their divine power mingling with the elemental energies of the world to create a realm unlike any other. Thus, with "The First Divine Steps," the Age of Divine Dominion began, ushering in a new era of prosperity, enlightenment, and divine influence for the mortal races of Aurelyon.
+
+> Excerpt from _Aurelyon: From Creation to Catastrophe - The Rise and Fall of Divine Dominion_ by _Chronicler Aldric Stonehelm_

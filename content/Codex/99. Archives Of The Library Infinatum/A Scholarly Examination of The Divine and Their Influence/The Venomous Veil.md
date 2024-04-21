@@ -1,0 +1,13 @@
+![[Zehir.jpg|left|350|350]]Zehir, the Cloaked Serpent, commands a place of dark reverence and stealth within the pantheon of Aurelyon, feared for his poisonous touch and insidious plots. As the God of Darkness and Poison, Zehir embodies the ideals of secrecy, assassination, and the relentless pursuit of power through covert means, commanding the adulation and dread of those who operate in the shadows.
+
+The influence of Zehir slithers like a serpent through the mortal realm, spreading venom and intrigue in its wake. His worshippers, drawn to his message of stealth and ambition, pay homage to the Cloaked Serpent through acts of assassination, sabotage, and the spreading of poison, seeking to emulate his mastery of stealth and claim dominion over the realms of darkness.
+
+The symbol of Zehir, a coiled serpent poised to strike, serves as a potent emblem of his influence and authority, evoking the darkness and treachery that lie at the heart of his malevolent designs. It instils fear and paranoia among his followers, driving them to embrace the shadows and secrets that conceal their dark lord's true intentions.
+
+Religions devoted to Zehir vary in their practices and beliefs, but all share a common reverence for their malevolent deity and a dedication to furthering his agenda of secrecy and domination. Some sects worship Zehir as a god of assassins, invoking his blessings in matters of stealth, subterfuge, and the elimination of enemies. Others venerate him as a patron of poison and venom, seeking his favour in matters of toxin crafting, venomous creatures, and the spreading of disease.
+
+![[_zehir.jpg|right|300|300]]Among the most devout of Zehir's followers are the [[Sect Of The Venomous Fang]], a fellowship of assassins, spies, and poisoners dedicated to spreading the message of stealth and ambition in his name. These shadowy agents of the Cloaked Serpent operate in the darkness, striking from the shadows and weaving their dark influence into the fabric of mortal lives, guided by the whispers of their dread lord.
+
+In conclusion, the influence of Zehir casts a shadow of darkness and treachery across Aurelyon, spreading deceit and intrigue in its wake. Whether worshipped as a god of assassins or a patron of poison, Zehir inspires his followers to embrace the shadows and secrets that conceal their true intentions, embodying the ideals of stealth, assassination, and ambition for all who succumb to his malevolent influence.
+
+> Excerpt from _A Scholarly Examination of The Divine and Their Influence: The Venomous Veil_ as written by *[[Loremaster Thalindor Moonshadow]]*

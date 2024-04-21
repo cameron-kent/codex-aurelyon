@@ -1,0 +1,7 @@
+According to folklore passed down through generations, Nastra, the larger and brighter of the two moons, was believed to be the embodiment of purity and benevolence. Its radiant glow illuminated the darkness, guiding travelers on their journeys and bringing comfort to those in need. The cycles of Alturis were long and predictable, with each phase marking the passage of time like the steady beat of a celestial drum.
+
+Nastra, on the other hand, was said to be the more mysterious and enigmatic of the pair. Despite its smaller size and fainter light, Nastra held a special allure, captivating the hearts and minds of those who gazed upon its serene blue glow. Its cycles were shorter and less predictable, waxing and waning with a rhythm all its own, like a melody woven into the fabric of the cosmos.
+
+According to folklore, the two moons were not merely celestial bodies, but sentient beings who watched over the world with vigilant eyes. It was said that Alturis, with its gentle radiance, bestowed blessings of prosperity and protection upon the land, while Nastra, with its subtle glow, whispered secrets of wisdom and insight to those who dared to listen.
+
+> Excerpt from _Moondance: Folktales and Fables of Aurelyon's Celestial Twins_ by _Loremaster Argus Nightshade_

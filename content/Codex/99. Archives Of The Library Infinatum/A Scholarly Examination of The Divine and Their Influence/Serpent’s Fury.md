@@ -1,0 +1,13 @@
+![[Tiamat.jpg|left|350|350]]Tiamat, the Queen of Chromatic Dragons, commands a place of fear and reverence within the pantheon of Aurelyon, revered for her draconic might and insatiable lust for power. As the Goddess of Greed and Conquest, Tiamat embodies the ideals of ambition, domination, and the relentless pursuit of supremacy, commanding the adulation and dread of those who seek power at any cost.
+
+The influence of Tiamat looms like a shadow over the mortal realm, inspiring awe and terror in equal measure. Her worshippers, drawn to her message of dominance and avarice, pay homage to the Queen of Dragons through acts of conquest, plunder, and the accumulation of wealth and power, seeking to emulate her draconic majesty and claim their rightful place as rulers of the world.
+
+The symbol of Tiamat, a five-headed dragon wreathed in flames, serves as a potent emblem of her influence and authority, evoking the fearsome power and majesty of the Queen of Chromatic Dragons. It instils fear and reverence among her followers, driving them to pursue their ambitions with ruthless determination and unyielding resolve.
+
+Religions devoted to Tiamat vary in their practices and beliefs, but all share a common reverence for their draconic deity and a dedication to furthering her agenda of conquest and domination. Some sects worship Tiamat as a goddess of dragons, invoking her blessings in matters of draconic supremacy, territorial expansion, and the hoarding of treasure. Others venerate her as a patron of ambition and avarice, seeking her favour in matters of personal power, wealth, and influence.
+
+![[_tiamat.jpg|right|300|300]]Among the most devout of Tiamat's followers is the [[Cult Of The Five Heads]], a fellowship of dragonkin, mercenaries, and tyrants dedicated to spreading the message of conquest and domination in her name. These ruthless agents of the Queen of Dragons seek to impose her will upon the mortal realm, crushing all who dare to oppose them beneath the weight of draconic might and ambition, guided by the insatiable hunger for power that burns within their draconic hearts.
+
+In conclusion, the influence of Tiamat casts a shadow of fear and ambition across Aurelyon, inspiring mortals to pursue power and dominance at any cost. Whether worshipped as a goddess of dragons or a patron of ambition, Tiamat embodies the ideals of conquest, domination, and the relentless pursuit of power for all who bow before her draconic majesty.
+
+> Excerpt from _A Scholarly Examination of The Divine and Their Influence: Serpent’s Fury_ as written by *[[Loremaster Thalindor Moonshadow]]*

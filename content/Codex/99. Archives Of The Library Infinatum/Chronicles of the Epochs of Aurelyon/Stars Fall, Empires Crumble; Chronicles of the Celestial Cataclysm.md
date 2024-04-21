@@ -1,0 +1,11 @@
+The heavens erupted in a breathtaking display of celestial chaos. A brilliant implosion of light and color shattered the tranquil night sky, casting the world below into a kaleidoscope of fiery hues and shimmering brilliance. Celestial debris descended upon the world in a torrential downpour of fire and fury, hurtling towards the surface with the force of a thousand thunderbolts.
+
+The impacts of these celestial projectiles were cataclysmic, as they collided with the planet below. Cities were consumed in searing flames, their once-proud spires reduced to smoldering ruins in the blink of an eye. Kingdoms crumbled beneath the onslaught, their armies scattered and their defenses shattered by the relentless onslaught of falling stars.
+
+Millions perished in the fiery cataclysm, their screams drowned out by the roar of the inferno as it swept across the land, leaving naught but devastation and despair in its wake. Those who survived emerged from the wreckage of their shattered world, their lives forever changed by the horrors they had witnessed and the losses they had endured.
+
+For an entire year, the skies above Aurelyon were ablaze with the fiery spectacle of falling stars, each impact leaving its mark upon the scarred and battered landscape. But as the days turned into weeks, and the weeks into months, the onslaught began to wane, until at last, with a final, deafening roar, the last "star" fell from the heavens.
+
+As the smoke cleared and the dust settled, Aurelyon stood on the brink of a new era, its once-glorious cities reduced to smoldering ruins, its proud kingdoms left shattered and broken. Yet amidst the devastation, there lingered a glimmer of hope, a resilient spirit that refused to be extinguished by the fires of destruction. And as the sky darkened on the eve of a new dawn, the people of Aurelyon looked to the horizon with renewed determination, ready to rebuild and reclaim their shattered world from the ashes of catastrophe.
+
+> Excerpt from _Stars Fall, Empires Crumble: Chronicles of the Celestial Cataclysm_ by _Chronicler Argus Stoneheart_

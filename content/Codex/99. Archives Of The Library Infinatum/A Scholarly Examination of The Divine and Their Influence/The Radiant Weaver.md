@@ -1,0 +1,13 @@
+![[Corellon.jpg|left|350|350]]Corellon, the Radiant Weaver, stands as a revered and enigmatic deity within the pantheon of Aurelyon, celebrated for his mastery of magic, artistry, and grace. As the God of Magic and the Arts, Corellon embodies the ideals of creativity, beauty, and elvenkind, commanding the admiration and reverence of artists, scholars, and adventurers alike.
+
+The influence of Corellon permeates the mortal realm, infusing it with his divine essence and inspiring mortals to reach new heights of creativity and expression. His worshippers, drawn to his message of beauty and artistry, pay homage to the Radiant Weaver through acts of creation, innovation, and reverence for the natural world, seeking to emulate his grace and elegance in their own lives.
+
+The symbol of Corellon, an intricately woven pattern of flowing lines and radiant light, serves as a potent emblem of his influence and inspiration. Representing the interconnectedness of all things and the boundless potential of creation, the image of the Radiant Weaver inspires awe and reverence among his followers, instilling in them a sense of wonder and appreciation for the beauty of the world.
+
+Religions devoted to Corellon vary in their practices and beliefs, but all share a common reverence for their divine patron and a dedication to furthering his agenda of creativity and expression. Some sects worship Corellon as a god of magic, invoking his blessings in the pursuit of arcane knowledge and mastery of the arcane arts. Others venerate him as a patron of artists and artisans, seeking to emulate his skill and artistry in their own creative endeavours.
+
+![[_corellon.jpg|right|300|300]]Among the most devout of Corellon's followers are the [[Heralds Of The Radiant Dawn]], a fellowship of artists, scholars, and adventurers dedicated to spreading the message of beauty and creativity in his name. These noble souls seek to inspire others with their art, music, and poetry, illuminating the world with the radiant light of their beloved Radiant Weaver.
+
+In conclusion, the influence of Corellon shines brightly upon Aurelyon, illuminating the mortal realm with his divine essence and inspiring mortals to embrace the beauty and wonder of creation. Whether worshipped as a god of magic or a patron of the arts, Corellon inspires his followers to reach for the stars and weave their own tales of beauty and magic for all who call upon his name.
+
+> Excerpt from _A Scholarly Examination of The Divine and Their Influence: The Radiant Weaver_ as written by *[[Loremaster Thalindor Moonshadow]]*

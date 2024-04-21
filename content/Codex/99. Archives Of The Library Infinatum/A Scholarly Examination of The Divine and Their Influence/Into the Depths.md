@@ -1,0 +1,13 @@
+![[Torog.jpg|left|350|350]]Torog, the King that Crawls, commands a place of dread and darkness within the pantheon of Aurelyon, feared for his dominion over the depths of the earth and the horrors that dwell within. As the God of the Netherdark and Imprisonment, Torog embodies the ideals of oppression, suffering, and the relentless pursuit of control, commanding the awe and terror of those who dwell beneath the surface of the world.
+
+The influence of Torog festers like a cancer within the bowels of the earth, spreading madness and despair in its wake. His worshippers, drawn to his message of domination and subservience, pay homage to the King that Crawls through acts of torture, enslavement, and the imposition of their will upon others, seeking to emulate his mastery over the depths and claim dominion over all who dwell within.
+
+The symbol of Torog, a twisted knot of chains wrapped around a jagged stalagmite, serves as a potent emblem of his influence and authority, evoking the darkness and despair that lurk within the deepest recesses of the earth. It instils fear and dread among his followers, driving them to embrace the cruelty and suffering that lie at the heart of their malevolent deity.
+
+Religions devoted to Torog vary in their practices and beliefs, but all share a common reverence for their malevolent deity and a dedication to furthering his agenda of oppression and control. Some sects worship Torog as a god of the Netherdark, invoking his blessings in matters of subjugation, domination, and the exploitation of natural resources. Others venerate him as a patron of imprisonment and torture, seeking his favour in matters of captivity, confinement, and the infliction of pain.
+
+![[_torog.jpg|right|300|300]]Among the most devout of Torog's followers are the [[Disciples Of The Depths]], a fellowship of slavers, torturers, and underground lords dedicated to spreading the message of domination and subservience in his name. These twisted souls revel in the darkness and despair that pervade their lives, seeking to impose their will upon the world above and below, guided by the malevolent whispers of their dread lord.
+
+In conclusion, the influence of Torog casts a shadow of darkness and despair across Aurelyon, spreading cruelty and suffering in its wake. Whether worshipped as a god of the Netherdark or a patron of imprisonment, Torog inspires his followers to embrace the darkness within themselves and unleash it upon the world, embodying the ideals of oppression, suffering, and domination for all who succumb to his malevolent influence.
+
+> Excerpt from _A Scholarly Examination of The Divine and Their Influence: Into the Depths_ as written by *[[Loremaster Thalindor Moonshadow]]*

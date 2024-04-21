@@ -1,0 +1,13 @@
+![[Pelor.jpg|left|350|350]]Pelor, the Radiant Sun, stands as a luminous and revered deity within the pantheon of Aurelyon, celebrated for his warmth, compassion, and life-giving light. As the God of the Sun and Healing, Pelor embodies the ideals of light, hope, and the renewal of life, commanding the adoration and reverence of farmers, healers, and those who seek solace in times of darkness.
+
+The influence of Pelor shines like a beacon across the mortal realm, bringing light and warmth to all who bask in his divine radiance. His worshippers, drawn to his message of compassion and redemption, pay homage to the Radiant Sun through acts of kindness, healing, and the nurturing of life, seeking to emulate his benevolence and generosity in their own lives.
+
+The symbol of Pelor, a golden sunburst wreathed in rays of light, serves as a potent emblem of his influence and authority. Representing light, life, and the eternal cycle of renewal, the image of the Radiant Sun inspires hope and gratitude among his followers, instilling in them a sense of comfort and reassurance in the face of adversity.
+
+Religions devoted to Pelor vary in their practices and beliefs, but all share a common reverence for their benevolent deity and a dedication to furthering his agenda of healing and redemption. Some sects worship Pelor as a god of agriculture and fertility, invoking his blessings in matters of planting, harvest, and the nurturing of crops. Others venerate him as a patron of healing and restoration, seeking his favour in matters of health, well-being, and the alleviation of suffering.
+
+![[_pelor.jpg|right|300|300]]Among the most devout of Pelor's followers are the [[Children Of The Dawn]], a fellowship of healers, farmers, and caretakers dedicated to spreading the message of compassion and renewal in his name. These compassionate souls labour tirelessly in the service of their beloved deity, bringing light and healing to the darkest corners of Aurelyon, guided by the divine warmth of their benevolent Radiant Sun.
+
+In conclusion, the influence of Pelor shines like a beacon of hope through Aurelyon, illuminating the world with his divine radiance and bringing warmth and healing to all who call upon his name. Whether worshipped as a god of agriculture or a patron of healing, Pelor inspires his followers to embrace the light within themselves and spread its warmth and compassion to all who dwell in darkness, embodying the ideals of kindness, compassion, and renewal for all who seek his guidance and protection.
+
+> Excerpt from _A Scholarly Examination of The Divine and Their Influence: The Radiant Sun_ as written by *[[Loremaster Thalindor Moonshadow]]*

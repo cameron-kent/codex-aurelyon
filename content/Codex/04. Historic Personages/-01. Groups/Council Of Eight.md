@@ -1,0 +1,8 @@
+![[Aldric Stormshield]]
+![[Borin Ironbeard]]
+![[Elowen Greenarrow]]
+![[Galad'rel Silverleaf]]
+![[Lyra Dawnheart]]
+![[Merrick Gearspark]]
+![[Thaddeus Lightbringer]]
+![[Thora Stoneheart]]

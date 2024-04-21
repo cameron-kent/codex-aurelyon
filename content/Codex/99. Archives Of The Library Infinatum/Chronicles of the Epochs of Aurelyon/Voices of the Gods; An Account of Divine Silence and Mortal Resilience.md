@@ -1,0 +1,11 @@
+In the wake of the cataclysmic events of the Year of Falling Stars, Aurelyon stood as a scarred and battered world, its once-proud civilizations reduced to smoldering ruins and its people left reeling from the devastation wrought by celestial chaos. Yet amidst the physical destruction, an even greater loss was keenly felt by those who had long looked to the heavens for guidance and solace.
+
+For it had been many years since the gods themselves had walked the face of Aurelyon, their divine presence fading with the passing of time, until even the most devout among their followers found their prayers met with silence. Not since the height of the Axiom Rift had the gods walked among mortals, their voices heard and their blessings felt in the mortal realm.
+
+In the final days of the Year of Falling Stars, as the celestial debris rained down upon the world in fire and storm, those most in touch with the divine felt a profound shift in the cosmic balance. The voices of the gods grew quiet, their once-potent presence fading like the dying embers of a spent flame. And as the last "star" fell from the heavens and the sky darkened once more, a palpable sense of loss descended upon Aurelyon.
+
+For those who worshipped the gods, and for those who had been chosen as vessels through which the divine spoke, a connection that had once been the cornerstone of their faith was lost. No longer could they hear the whispers of the divine or feel the touch of their guiding hand upon their souls. In the silence that followed, a profound sense of emptiness settled upon the world, leaving its people to grapple with the uncertainty of a future devoid of divine intervention.
+
+Yet amidst the darkness, a flicker of hope remained, a glimmer of light that refused to be extinguished. For even as the gods' presence waned, the indomitable spirit of Aurelyon's people burned bright, their resilience and determination serving as a beacon of hope in the face of adversity. And as they stood on the precipice of a new era, they vowed to carry on, to rebuild and reclaim their shattered world, guided not by the hand of the divine, but by the strength of their own will and the bonds of fellowship that united them as one.
+
+> Excerpt from _Voices of the Gods: An Account of Divine Silence and Mortal Resilience_ by _High Priestess Elara Sunshard_

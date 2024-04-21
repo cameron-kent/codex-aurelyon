@@ -1,0 +1,13 @@
+![[Gruumsh.jpg|left|350|350]]Gruumsh, the Savage Fury, stands as a formidable and fearsome deity within the pantheon of Aurelyon, revered for his ferocity, strength, and unyielding determination. As the God of Orcs and Warfare, Gruumsh embodies the ideals of brutality, conquest, and martial prowess, commanding the loyalty and obedience of warriors and savages alike. 
+
+The influence of Gruumsh casts a dark shadow across the mortal realm, instilling fear and awe in all who dare to oppose his will. His worshippers, drawn to his message of strength and dominance, pay homage to the Savage Fury through acts of violence, bloodshed, and ruthless ambition, seeking to emulate his ferocity and aggression in their own lives.
+
+The symbol of Gruumsh, a blood-red eye wreathed in bones, serves as a potent emblem of his influence and authority. Representing vigilance, power, and the thirst for conquest, the image of the Savage Fury inspires terror and reverence among his followers, instilling in them a sense of awe and obedience in the face of his wrath.
+
+Religions devoted to Gruumsh vary in their practices and beliefs, but all share a common reverence for their fearsome deity and a dedication to furthering his agenda of domination and warfare. Some sects worship Gruumsh as a god of war, invoking his blessings in times of conflict and seeking his favour on the battlefield. Others venerate him as a patron of orcs and savages, seeking to emulate his brutality and strength in the pursuit of conquest and glory.
+
+![[_gruumsh.jpg|right|300|300]]Among the most devout of Gruumsh's followers are the [[Horde Of The Bloodied Eye]], a savage horde of orcs and warriors dedicated to spreading chaos and destruction in his name. These fierce warriors revel in the thrill of battle, sowing terror and devastation wherever they go, guided by the divine fury of their beloved Savage Fury.
+
+In conclusion, the influence of Gruumsh looms large upon Aurelyon, shaping the destiny of nations and the course of history with his iron will and unyielding aggression. Whether worshipped as a god of war or a patron of savagery, Gruumsh inspires fear and obedience in all who dare to defy his divine authority, embodying the ideals of conquest and domination for all who call upon his name.
+
+> Excerpt from _A Scholarly Examination of The Divine and Their Influence: The Savage Fury_ as written by *[[Loremaster Thalindor Moonshadow]]*

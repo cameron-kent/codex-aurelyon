@@ -1,0 +1,13 @@
+![[Melora.jpg|left|350|350]]Melora, the Mistress of the Wild, stands as a revered and revered deity within the pantheon of Aurelyon, celebrated for her connection to nature, the sea, and the untamed wilderness. As the Goddess of Nature and the Sea, Melora embodies the ideals of harmony, balance, and the inherent beauty of the natural world, commanding the admiration and respect of druids, sailors, and those who revere the wild places of Aurelyon.
+
+The influence of Melora courses through the veins of the mortal realm, guiding mortals on their journey through the wilderness and the vast expanse of the ocean. Her worshippers, drawn to her message of reverence for the natural world, pay homage to the Mistress of the Wild through acts of stewardship, exploration, and communion with the elements, seeking to emulate her connection to nature in their own lives.
+
+The symbol of Melora, a graceful dolphin cresting a wave made of vines, serves as a potent emblem of her influence and authority. Representing the beauty, power, and majesty of nature, the image of the Mistress of the Wild inspires awe and reverence among her followers, instilling in them a sense of wonder and humility in the face of the natural world.
+
+Religions devoted to Melora vary in their practices and beliefs, but all share a common reverence for their beloved deity and a dedication to furthering her agenda of harmony and balance. Some sects worship Melora as a goddess of nature, invoking her blessings in matters of conservation, preservation, and the protection of the wild places of Aurelyon. Others venerate her as a patron of the sea, seeking her favour in matters of navigation, fishing, and maritime exploration.
+
+![[_melora.jpg|right|300|300]]Among the most devout of Melora's followers are the [[Guardians Of The Green]], a fellowship of druids, rangers, and sailors dedicated to spreading the message of reverence for the natural world in her name. These intrepid souls roam the forests, mountains, and oceans of Aurelyon, protecting the wild places and creatures that call them home, guided by the divine wisdom of their beloved Mistress of the Wild.
+
+In conclusion, the influence of Melora flows like a river through Aurelyon, nurturing the land and sea with her boundless love and compassion. Whether worshipped as a goddess of nature or a patron of the sea, Melora inspires her followers to embrace the beauty and wonder of the natural world and to protect it for future generations, embodying the ideals of harmony, balance, and stewardship for all who call upon her name.
+
+> Excerpt from _A Scholarly Examination of The Divine and Their Influence: The Mistress of the Wild_ as written by *[[Loremaster Thalindor Moonshadow]]*

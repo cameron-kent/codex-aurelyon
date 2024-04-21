@@ -1,0 +1,11 @@
+![[Bane.jpg|left|350|350]]Bane, the Iron Tyrant, stands as a formidable and fearsome deity within the pantheon of Aurelyon, revered for his relentless pursuit of power, conquest, and domination. As the God of War and Conquest, Bane embodies the ideals of strength, ambition, and ruthlessness, commanding the loyalty and obedience of warriors and tyrants alike. 
+
+The influence of Bane casts a dark shadow across the mortal realm, instilling fear and awe in all who dare to defy his will. His worshippers, drawn to his message of dominance and supremacy, pay homage to the Iron Tyrant through acts of conquest, subjugation, and bloodshed. The symbol of Bane, a clawed fist wreathed in flames, serves as a potent emblem of his influence and authority. Representing power, aggression, and unyielding resolve, the image of the Iron Tyrant inspires dread and reverence among his followers, instilling in them a sense of fear and obedience in the face of his wrath.
+
+Religions devoted to Bane vary in their practices and beliefs, but all share a common reverence for their tyrannical deity and a dedication to furthering his agenda of conquest and domination. Some sects worship Bane as a god of war, invoking his blessings in times of conflict and seeking his favour on the battlefield. Others venerate him as a patron of tyrants and dictators, seeking to emulate his iron-fisted rule and merciless cruelty in the pursuit of power.
+
+![[_bane.jpg|right|300|300]]Among the most devout of Bane's followers are the [[Order Of The Black Hand]], a militant organization dedicated to spreading chaos and tyranny in his name. These ruthless enforcers of Bane's will wage war upon the mortal realm, subjugating nations, crushing dissent, and imposing their dark lord's oppressive rule upon all who dare to oppose them.
+
+In conclusion, the influence of Bane casts a long shadow upon Aurelyon, shaping the destiny of nations and the course of history with his iron will and unyielding ambition. Whether worshipped as a god of war or a patron of tyrants, Bane inspires fear and obedience in all who dare to defy his divine authority, embodying the ideals of conquest and domination for all who call upon his name.
+
+> Excerpt from _A Scholarly Examination of The Divine and Their Influence: The Iron Tyrant_ as written by *[[Loremaster Thalindor Moonshadow]]*

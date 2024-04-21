@@ -1,0 +1,13 @@
+![[Tharizdun.jpg|left|350|350]]Tharizdun, the Chained Oblivion, stands as a dark and malevolent presence within the pantheon of Aurelyon, feared for his insatiable hunger for destruction and madness. As the God of Eternal Darkness and Madness, Tharizdun embodies the ideals of entropy, despair, and the unravelling of reality itself, commanding the dread and dread of those who dread the abyss.
+
+The influence of Tharizdun festers like a wound upon the mortal realm, spreading madness and corruption in its wake. His worshippers, drawn to his message of chaos and annihilation, pay homage to the Chained Oblivion through acts of desecration, madness, and the spreading of despair, seeking to unravel the fabric of reality and plunge the world into eternal darkness.
+
+The symbol of Tharizdun, a dark and twisted spiral wrapped in chains, serves as a stark reminder of his influence and authority, evoking the depths of madness and despair that lurk within the darkest recesses of the mortal soul. It instils fear and dread among his followers, driving them to embrace the chaos and destruction that lie at the heart of their malevolent deity.
+
+Religions devoted to Tharizdun vary in their practices and beliefs, but all share a common reverence for their malevolent deity and a dedication to furthering his agenda of chaos and destruction. Some sects worship Tharizdun as a god of madness, invoking his blessings in matters of insanity, delusion, and the unravelling of reality. Others venerate him as a patron of entropy and despair, seeking his favour in matters of destruction, decay, and the dissolution of order.
+
+![[_tharizdun.jpg|right|300|300]]Among the most devout of Tharizdun's followers is the [[Cult Of The Abyssal Spiral]], a fellowship of madmen, cultists, and nihilists dedicated to spreading the message of chaos and destruction in his name. These twisted souls revel in the madness and despair that pervade their lives, seeking to bring about the end of all things and usher in a new age of darkness and oblivion, guided by the malevolent whispers of their dread lord.
+
+In conclusion, the influence of Tharizdun casts a shadow of madness and despair across Aurelyon, spreading chaos and corruption in its wake. Whether worshipped as a god of madness or a patron of entropy, Tharizdun inspires his followers to embrace the darkness within themselves and unleash it upon the world, embodying the ideals of chaos, destruction, and madness for all who succumb to his dread influence.
+
+> Excerpt from _A Scholarly Examination of The Divine and Their Influence: Whispers of Madness_ as written by *[[Loremaster Thalindor Moonshadow]]*
